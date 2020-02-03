@@ -1,2 +1,3 @@
 # hello-world
-sample repository
+just have the nack of learning new stuuffss!!
+jst the beginning
